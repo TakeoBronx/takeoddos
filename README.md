@@ -1,1 +1,3 @@
-# takeoddos
+# Takeo DDOS DO NOT ABUSE THIS TOOLS
+# BE CAREFEFULL, SUBSCRIBE ME FOR MANY TOOLS
+https://www.youtube.com/channel/UCoFAkjlAT42npxKP_FDvKbQ
